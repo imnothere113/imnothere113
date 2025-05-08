@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on pony town and tictock
 - 📫 How to reach me ticktock and pony town somerhines cookie run kingdom 
 - 😄 Pronouns:they/them
-- ⚡ Fun fact:I am transgender and will love to know about u and im lesb
+- ⚡ Fun fact:I am transgender and will love to know about u and im lesbian 
 
 <!---
 imnothere113/imnothere113 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
